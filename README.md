@@ -6,4 +6,4 @@
 
 ## Trainees
 
-- Yusuf
+- Yusuf Kharoda
